@@ -1,4 +1,3 @@
-Entendi. Vamos estruturar a campanha para oferecer o serviço de limpeza com banho ultrassônico, destacando os benefícios e aplicações, e como você pode atender às necessidades específicas dos clientes. Aqui está um plano para desenvolver a campanha:
 
 ### 1. Identificar Público-Alvo
 Identifique os segmentos de mercado que podem se beneficiar do serviço de limpeza com banho ultrassônico:
